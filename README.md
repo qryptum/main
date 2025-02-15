@@ -1,4 +1,11 @@
 # Qryptum
+⚠ NO TOKEN HAS LAUNCHED YET! Please be cautious of any unofficial token claims.
+
+⚠ NO TOKEN HAS LAUNCHED YET! Please be cautious of any unofficial token claims.
+
+⚠ NO TOKEN HAS LAUNCHED YET! Please be cautious of any unofficial token claims.
+
+
 
 ## About The Project
 
